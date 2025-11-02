@@ -1,9 +1,9 @@
-## hi there !! (ignore this ,, i dont know what im doing)
+## hi there !!
 
-<!--
-**HOTGUY-045/HOTGUY-045** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+I am refered to as hotguy/hg or corvid ! most likely to be seen people watching on the top part of the hill most of the time, or being bullied by my friends (smh)
 
--work in progress about me page ,,, shh you see nothing 
+open to making new friends!!! i am an awful people talker at times but doesnt mean im trying to be, usually just awkward (i need new friends, the ones i have bully me /silly)
 
--i know what im doing 100%
+would love to chat over intrests !! 
 
+I use tone indicators often since i myself struggle with tone majority of times
