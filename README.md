@@ -8,4 +8,4 @@ would love to chat over intrests :] I need to collect a list of them tbh ,,, but
 
 I use tone indicators often since i myself struggle with tone majority of times
 
-c+h open to anyone ! green names c+h always (if it isnt there feel free to ask)
+c+h open to anyone ! green names c+h always (if it isnt there in my name feel free to ask)
